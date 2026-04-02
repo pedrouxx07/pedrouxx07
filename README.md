@@ -19,4 +19,4 @@
 - 🔹 Blog Música
 
 ## 📫 Contato
-- Email: seuemail@email.com
+- Email: pedrovini125.oliveira@email.com
